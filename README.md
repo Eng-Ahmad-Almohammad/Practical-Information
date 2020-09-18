@@ -1,1 +1,1 @@
-# Practical-Information
+# Practical Information
